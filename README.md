@@ -9,7 +9,6 @@ am i doing it right???
 
 ## aM i ScaRINg yOU?/
 
-
-
-
 ##### leMME tELl YoU a sECreT
+
+:sob::sob:
