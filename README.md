@@ -31,3 +31,6 @@ am i doing it right???
 - Do things that scare you
 - You won't regret it :)
 
+Add me on Linkedin - Jane Lam, Computer science student
+I am going to intern in New York this summer and I cannot wait :D
+https://www.linkedin.com/in/jane-lam-0b6294141
