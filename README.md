@@ -12,3 +12,14 @@ am i doing it right???
 ##### leMME tELl YoU a sECreT
 
 :sob::sob:
+
+:eyes:
+
+:eyes:
+
+### my list:
+- [x] breakfast
+- [ ] laundry
+- [ ] programming 5
+- [ ] kill...
+- [x] :trollface::trollface:
