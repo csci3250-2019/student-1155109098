@@ -23,3 +23,11 @@ am i doing it right???
 - [ ] programming 5
 - [ ] kill...
 - [x] :trollface::trollface:
+
+# Wisdom of life
+- Love yourself first before you love someone else
+- It is okay to put yourself first
+- You deserve what you believe; don't ever think less of that
+- Do things that scare you
+- You won't regret it :)
+
