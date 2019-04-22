@@ -35,4 +35,5 @@ am i doing it right???
 #### I am going to intern in New York this summer and I cannot wait :D
 ### https://www.linkedin.com/in/jane-lam-0b6294141
 
-![alt text](https://github.com/csci3250-2019/student-1155109098/issues/1#issue-435743805)
+my code hereeeee
+![](https://user-images.githubusercontent.com/49427290/56504935-c6476b80-654c-11e9-8dab-17708ef9b573.png)
