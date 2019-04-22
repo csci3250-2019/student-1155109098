@@ -34,4 +34,4 @@ am i doing it right???
 #### Add me on Linkedin - Jane Lam, Computer science student
 #### I am going to intern in New York this summer and I cannot wait :D
 ### https://www.linkedin.com/in/jane-lam-0b6294141
-Screenshot 2019-04-22 at 10.14.20 PM
+
